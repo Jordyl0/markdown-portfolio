@@ -1,1 +1,1 @@
-! [Image of Burger King Toad] (https://i.redd.it/hnwa1mgvhjh21.jpg)
+! [Image of Burger King Toad] (https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.reddit.com%2Fr%2Ffunny%2Fcomments%2Fasb9m9%2Fheres_danny_toadvito_modeling_a_burger_king_crown%2F&psig=AOvVaw1kzK3hw4lCyOP4o-XwrXUw&ust=1611725408130000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCMDO5pfvuO4CFQAAAAAdAAAAABAD)
